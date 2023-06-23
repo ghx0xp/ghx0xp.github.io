@@ -1,2 +1,3 @@
-# ghx0xp.github.io
-# http://nbys.unaux.com/(NB影视)
+# https://ghx0xp.github.io/
+NB影视：
+# http://nbys.unaux.com/
